@@ -1,1 +1,1 @@
-![meter pic 3](C:\Users\colby.thrash.PULLMAN\Pictures\METER_Pic3.png)
+![meter pic 3](https://avatars2.githubusercontent.com/u/37818207?s=400&v=4)
