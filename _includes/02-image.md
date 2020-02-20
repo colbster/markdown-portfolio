@@ -1,1 +1,1 @@
-Replace this with an image, like your photo. Ensure you include some alt-text.
+![meter pic 3](C:\Users\colby.thrash.PULLMAN\Pictures\METER_Pic3.png)
